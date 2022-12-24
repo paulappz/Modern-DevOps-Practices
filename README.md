@@ -1,5 +1,6 @@
 
-### Get this product for $5
+### Get this product for $5 
+https://reconshell.com/wp-content/uploads/2021/10/Mordan-DevOps-Practices.pdf
 
 <i>Packt is having its biggest sale of the year. Get this eBook or any other book, video, or course that you like just for $5 each</i>
 
